@@ -1,0 +1,1 @@
+# AI-powered-Crop-planing-and-market-price-Forecasting
